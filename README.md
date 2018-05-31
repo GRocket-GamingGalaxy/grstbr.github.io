@@ -1,2 +1,2 @@
 # Grayson brown
-Related image
+[coolthings.com](http://coolthings.com)
